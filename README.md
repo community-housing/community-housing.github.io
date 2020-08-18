@@ -1,7 +1,8 @@
 # Equitable Community Housing
 
 [**Join our slack!**](https://join.slack.com/t/community-housing/shared_invite/zt-h06kpzsg-hZNGyRRk3PMuxf4SJFz0lg)
-[**View our crazy Google doc!](https://docs.google.com/document/d/1TiZNteKUXUpPRcM42YgKt9vHUoKJzD6QMc7Jo_jo34o/edit?usp=sharing)
+
+[**View our crazy Google doc!**](https://docs.google.com/document/d/1TiZNteKUXUpPRcM42YgKt9vHUoKJzD6QMc7Jo_jo34o/edit?usp=sharing)
 
 As we move into an uncertain future, we hope to learn to live together in a resilient community. We aim to create affordable, sustainable, communal, safe, and accessible living, centered in collective decision-making and land stewardship. We envision a cluster of multiple dwellings with shared communal spaces and activities. We hope to use renewable resources and regenerative agriculture. 
 
